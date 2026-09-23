@@ -18,7 +18,6 @@
 
 ## 🔍 What I believe:
 > “A model that can’t feel can’t truly understand.”  
-> “Most papers are too safe. I like the dangerous ones.”
 
 ---
 
